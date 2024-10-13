@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: 
 I'm looking to collaborate on the projects that would make a difference 
 
 
